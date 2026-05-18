@@ -1,4 +1,4 @@
-# 
+# best bot de trading de Bybit addons es el mejor bot de trading de Bybit addons con control de deslizamiento y tamaño de posición. Seguro, confiable y optimizado para estrategias
 
 
 
